@@ -1,4 +1,4 @@
-## olá, tudo bem?Aproveita que ta por aqui,e já me segue 💚
+## Olá, tudo bem?Aproveita que tá por aqui,e já me segue 💚
 
  <div>
    <a href="https://github.com/sueniamacedo">
